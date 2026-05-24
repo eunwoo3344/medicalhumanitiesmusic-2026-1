@@ -6,6 +6,8 @@ Disease: Dissociative Identity Disorder
 ICD: F44.8
 ---
 
+https://www.youtube.com/watch?v=T7ra8zPCA9E
+
 # A Tale of Two Sisters
 
 The main theme of the film A Tale of Two Sisters, "The Unbearable Path" (or "A Flower's Afterimage"), functions as more than just background music; it serves as an auditory device that visualizes the collapsing internal world of the protagonist, Su-mi, who suffers from Dissociative Identity Disorder. The cyclical nature of the $3/4$ waltz time signature embodies the obsessive PTSD where the protagonist remains frozen in past trauma, painfully replaying the same memories. Furthermore, the eerie harmonies hidden beneath the aesthetically pleasing melody sensuously reveal the dissociation between a fabricated reality and the tragic truth. Ultimately, the sharp string techniques and repetitive motifs of this piece perfectly depict how guilt over an irreversible choice erodes an individual’s nervous system and leads to destructive 
